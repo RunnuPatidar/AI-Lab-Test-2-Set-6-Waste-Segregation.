@@ -1,0 +1,1 @@
+# AI-Lab-Test-2-Set-6-Waste-Segregation.
